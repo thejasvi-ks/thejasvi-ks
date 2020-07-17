@@ -22,7 +22,6 @@
 - Learning on Glitch <a href="https://glitch.com/@thejasvi-ks">Glitch</a> ✍🏾
 - Sharing updates on <a href="https://www.linkedin.com/in/thejasviks/">LinkedIn</a> 💼
 
-#### Thank You-🙏🏼
 
 
 
